@@ -17,7 +17,20 @@ Instagram gönderisi: https://www.instagram.com/p/BuCArw9hNPv/
 
 Podyum fotoğrafında ikinci sıradaki sporcu, Ömer Faruk Ekici tarafından **Yavuz Demircioğlu** olarak tanımlanmıştır.
 
-> Not: 2019 Türkiye Şampiyonası’nın tam Masters sonuç föyü bugün çevrimiçi açık arşivlerde kolay erişilebilir değildir. Bu kayıt, yarışma tarihindeki birincil kaynak niteliğindeki sporcu paylaşımına ve podyum fotoğrafına dayanır.
+## Görsel kanıt seti
+
+Aynı 17 Şubat 2019 tarihli Instagram gönderisinin karuselinden altı ek ekran görüntüsü arşivlenmiştir. Görseller şunları göstermektedir:
+
+- Yarışma alanında kupa ve madalya ile çekilmiş fotoğraf.
+- Ömer Faruk Ekici’nin yarışma alanında, sırtında **“Ömer Faruk Ekici”** yazılı tişörtle görüntüsü.
+- IPF logolu altın madalyanın yakın plan görüntüsü.
+- Altın madalya ve derece belgesiyle tek başına kürsü fotoğrafı.
+- Yarışma alanından başka bir sporcu ile birlikte çekilmiş fotoğraf.
+- **M105 podyum fotoğrafı:** Ömer Faruk Ekici 1. basamakta; Yavuz Demircioğlu 2. basamakta.
+
+Bu görsellerin tamamında Instagram gönderisinin açıklaması da görünmektedir: **“M105 2019 Türkiye Şampiyonası 1st place 15-16-17 2019 SUBAT IPF TURKIYE Powerlifting SAMPIYONASI BAYRAMPASA SEMIH ERDEN SPOR KOMPLEKSI.”**
+
+> Not: 2019 Türkiye Şampiyonası’nın tam Masters sonuç föyü bugün çevrimiçi açık arşivlerde kolay erişilebilir değildir. Bu kayıt, yarışma tarihindeki birincil kaynak niteliğindeki sporcu paylaşımına, podyum fotoğrafına ve aynı gönderideki ek yarışma görsellerine dayanır.
 
 ## English summary
 
@@ -28,3 +41,5 @@ Podyum fotoğrafında ikinci sıradaki sporcu, Ömer Faruk Ekici tarafından **Y
 2. **Yavuz Demircioğlu** — 2nd place
 
 Primary source: Ömer Faruk Ekici’s Instagram post dated 17 February 2019: https://www.instagram.com/p/BuCArw9hNPv/
+
+Additional evidence: six screenshots from the same Instagram carousel documenting the medal, certificate, competition venue and M105 podium.
